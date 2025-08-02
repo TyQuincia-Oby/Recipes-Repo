@@ -6,4 +6,5 @@
 * salt (Approx. $2)
 ## Instructions
 1. add
+2. Squeeze 2 limes in a bowl
 
