@@ -8,3 +8,5 @@
 1. add
 2. Squeeze 2 limes in a bowl
 3. Peel avocado
+4. Place avocado in bowl
+5. Add salt to avocado
