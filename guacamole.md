@@ -13,4 +13,4 @@
 3. Peel avocado
 4. Place avocado in bowl
 5. Add salt to avocado
-6. Serve with Margarita
+6. Serve with Margarita with sugar on rim
