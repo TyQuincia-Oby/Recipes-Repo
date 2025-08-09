@@ -4,7 +4,7 @@
 * lime (Approx. $3)
 * lemon (Approx. $3)
 * salt (Approx. $2)
-* pineapple (Approx. $4)
+* pineapple (Approx. $6)
 ## Instructions
 1. add
 2. Squeeze 2 limes in a bowl
