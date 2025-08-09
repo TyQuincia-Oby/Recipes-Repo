@@ -16,4 +16,4 @@
 5. Add salt to avocado
 6. Add ice to glass
 7. Serve with Margarita with sugar on rim
-8. Cinco De Mayo
+8. Cinco De Mayo pineapple
